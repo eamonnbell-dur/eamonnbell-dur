@@ -1,2 +1,2 @@
-Assistant Professor, Computer Science
+Assistant Professor, Computer Science  
 Durham University
